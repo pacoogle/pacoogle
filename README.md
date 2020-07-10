@@ -26,6 +26,6 @@ These are my personal contacts:
 
 - My professional profile on [LinkedIn](https://www.linkedin.com/in/pasqualeragozzino/)
 - Some personal pictures & passions on [Instagram](https://www.instagram.com/pacoogle_/)
-- See my [Personal Website] (https://pasqualeragozzino.it)
+- See my [Personal Website](https://pasqualeragozzino.it)
 - Send me an email ✉️: pasquale.ragozzino89@gmail.com
 
