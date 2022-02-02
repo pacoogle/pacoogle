@@ -10,7 +10,8 @@ I love to say that my know-how is like a backpack that contains everything I nee
 - I worked in a fintech company 🏦 as Software Engineer & Team leader
 - I worked in a influencer maketing company 💇🏼 as Software Engineer & Scrum Master (remote working)
 - I worked in a AD-tech company 🛍️ as Software Engineer (remote working)
-- I'm working in a price comparator company as Tech Lead (remote working)
+- I worked in a price comparator company as Tech Lead (remote working)
+- I'm working in a game tech company as Chief Technology Officer (remote working)
 
 ## 💡 Private & open-source project
 
