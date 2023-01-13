@@ -31,3 +31,4 @@ These are my personal contacts:
 - See my [Personal Website](https://pasqualeragozzino.it)
 - Send me an email ✉️: pasquale.ragozzino89@gmail.com
 
+[![GitHub Streak](https://streak-stats.demolab.com/?user=pacoogle)](https://git.io/streak-stats)
