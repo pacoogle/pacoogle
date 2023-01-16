@@ -34,5 +34,3 @@ These are my personal contacts:
 - Some personal pictures & passions on [Instagram](https://www.instagram.com/pacoogle_/)
 - See my [Personal Website](https://pasqualeragozzino.it)
 - Send me an email ✉️: pasquale.ragozzino89@gmail.com
-
-[![GitHub Streak](https://streak-stats.demolab.com/?user=pacoogle)](https://git.io/streak-stats)
