@@ -1,3 +1,5 @@
+![alt text](https://media.licdn.com/dms/image/C4D16AQFLc3E8flwrtA/profile-displaybackgroundimage-shrink_350_1400/0/1581353597787?e=1679529600&v=beta&t=aHi-SmHrMh2LwScvMa_DQg7LTu3B3Bymz9pQNS4OLlk)
+
 # 👋 Hello, World! I'm Pasquale Ragozzino aka Pacoogle!
 
 Nice to meet you. I'm Pasquale Ragozzino a software engineer and an aspiring ninja. I'm in <3 with everything I don't know. I love to said:
