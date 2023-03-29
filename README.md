@@ -1,4 +1,4 @@
-![alt text](https://ibb.co/RcJMPnX)
+![alt text](https://i.ibb.co/Hq9MYvc/1581353597787.jpg)
 
 # 👋 Hello, World! I'm Pasquale Ragozzino aka Pacoogle!
 
