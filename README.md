@@ -1,4 +1,4 @@
-![alt text](https://www.linkedin.com/in/pasqualeragozzino/overlay/background-image/)
+![alt text](https://ibb.co/RcJMPnX)
 
 # 👋 Hello, World! I'm Pasquale Ragozzino aka Pacoogle!
 
