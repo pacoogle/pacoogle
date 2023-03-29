@@ -1,4 +1,4 @@
-![alt text](https://media.licdn.com/dms/image/C4D16AQFLc3E8flwrtA/profile-displaybackgroundimage-shrink_350_1400/0/1581353597787?e=1679529600&v=beta&t=aHi-SmHrMh2LwScvMa_DQg7LTu3B3Bymz9pQNS4OLlk)
+![alt text](https://www.linkedin.com/in/pasqualeragozzino/overlay/background-image/)
 
 # 👋 Hello, World! I'm Pasquale Ragozzino aka Pacoogle!
 
